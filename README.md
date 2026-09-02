@@ -46,9 +46,11 @@
 <br>
 
 <div align= "center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Garmond&weight=300&size=19&pause=1000&color=D95280&width=700&lines=%22the+addiction+i+have+to+loneliness+holds+me+hostage.%22;%22why+won't+you+show+me+what+freedom+really+is%3F%22" alt="Typing SVG" /></a>
-[![Hits](https://hits.sh/github.com/patatescipsi/hits.svg?label=stalkers)](https://hits.sh/github.com/patatescipsi/hits/)
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Garmond&weight=300&size=19&pause=1000&color=D95280&width=700&lines=%22the+addiction+i+have+to+loneliness+holds+me+hostage.%22;%22why+won't+you+show+me+what+freedom+really+is%3F%22" alt="Typing SVG" /></a> 
+  
 <div align= "left">
 <img width="400" height="500" alt="asspacnakced" src="https://github.com/user-attachments/assets/e7d00b14-b8e4-4aa3-a58c-31c8e69b9fde" />
 
 <img width="200" height="260" alt="fuck" src="https://github.com/user-attachments/assets/5a1a54e9-216a-4f4f-8071-4ecc7d50b19f" align="right"/>
+
+[![Hits](https://hits.sh/github.com/patatescipsi/hits.svg?label=stalkers)](https://hits.sh/github.com/patatescipsi/hits/)
