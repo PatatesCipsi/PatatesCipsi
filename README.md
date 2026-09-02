@@ -1,9 +1,12 @@
 # call me Mero for short .ᐟ
-<img width="1451" height="346" alt="banner1" src="https://github.com/user-attachments/assets/585e479a-c180-41b6-b060-c51d045d4728" />
 
 <div align="center">
+<img width="1400" height="350" alt="banner1" src="https://github.com/user-attachments/assets/585e479a-c180-41b6-b060-c51d045d4728" />
+
+  𝘣𝘦𝘴𝘵 𝘷𝘪𝘦𝘸𝘦𝘥 𝘰𝘯 𝘱𝘤 , 𝘰𝘵𝘩𝘦𝘳𝘸𝘪𝘴𝘦 𝘦𝘷𝘦𝘳𝘺𝘵𝘩𝘪𝘯𝘨 𝘪𝘴 𝘨𝘰𝘯𝘯𝘢 𝘭𝘰𝘰𝘬 𝘭𝘪𝘬𝘦 𝘢 𝘥𝘶𝘮𝘱
+  <br>
   
- [┆ᴀᴛᴀʙᴏᴏᴋ ಄](https://mero.atabook.org/) [ꜱᴛʀᴀᴡpage┆](https://patatescipsi.straw.page/)
+  [┆ᴀᴛᴀʙᴏᴏᴋ ಄](https://mero.atabook.org/) [ꜱᴛʀᴀᴡpage┆](https://patatescipsi.straw.page/) 
 
 <div align="left> 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Times+Bold&pause=1000&color=D470CE&width=600&lines=%22lately%2C+i+find+comfort+in+these+isolated+nights.%22;%22but%2C+why+won't+you+accompany+me+in+this+one%3F%22" alt="Typing SVG" /></a>
@@ -21,6 +24,11 @@
 
 <div align="right">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Garmond&pause=1000&color=6F41B5&width=700&lines=%22I'm+afraid+of+the+cold+that+embraces+me+when+i'm+alone.%22;%22so+I+plea%2C+embrace+me+before+it+does.%22" alt="Typing SVG" /></a>
+
+<br>
+<img width="2906" height="143" alt="WHAT THE FUCK" src="https://github.com/user-attachments/assets/77803d1f-e222-4300-9a5c-dcd5886be32c" align="center" />
+<br>
+
 
 <div align= "left">
 <br>
@@ -44,13 +52,45 @@
 <img width="270" height="250" alt="my suffering never ends" src="https://github.com/user-attachments/assets/b9cf9aaa-3603-46f8-9279-9bef6ba290d8" />
 
 <br>
+<img width="2906" height="143" alt="WHAT THE FUCK" src="https://github.com/user-attachments/assets/bb4c7575-772e-4e86-977e-3345dcb8dc6d" align="center"/> 
+<br>
 
 <div align= "center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Garmond&weight=300&size=19&pause=1000&color=D95280&width=700&lines=%22the+addiction+i+have+to+loneliness+holds+me+hostage.%22;%22why+won't+you+show+me+what+freedom+really+is%3F%22" alt="Typing SVG" /></a> 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Garmond&weight=300&size=19&pause=1000&color=915283&width=700&lines=%22the+addiction+i+have+to+loneliness+holds+me+hostage.%22;%22why+won't+you+show+me+what+freedom+really+is%3F%22" alt="Typing SVG" /></a>
   
 <div align= "left">
 <img width="400" height="500" alt="asspacnakced" src="https://github.com/user-attachments/assets/e7d00b14-b8e4-4aa3-a58c-31c8e69b9fde" />
 
 <img width="200" height="260" alt="fuck" src="https://github.com/user-attachments/assets/5a1a54e9-216a-4f4f-8071-4ecc7d50b19f" align="right"/>
 
-[![Hits](https://hits.sh/github.com/patatescipsi/hits.svg?label=stalkers)](https://hits.sh/github.com/patatescipsi/hits/)
+<div align="right"> <a href="https://hits.sh/github.com/patatescipsi/hits/"><img alt="Hits" src="https://hits.sh/github.com/patatescipsi/hits.svg?style=for-the-badge&label=%E2%9D%A4%EF%B8%8E%20stalkers&color=f8c1a5&labelColor=915283"/></a>
+
+<div align="right">
+
+ＢＹＩ: ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀
+
+dni: 𝐩𝐫𝐨𝐬𝐡𝐢𝐩𝐩𝐞𝐫𝐬/𝐝𝐚𝐫𝐤𝐬𝐡𝐢𝐩𝐩𝐞𝐫𝐬 , 𝐮𝐧𝐝𝐞𝐫 𝟏𝟑 , 𝐛𝐚𝐬𝐢𝐜 𝐝𝐧𝐢 𝐜𝐫𝐢𝐭𝐞𝐫𝐢𝐚 , 𝐚𝐥𝐬𝐨 𝐢𝐟 𝐲𝐨𝐮'𝐫𝐞 𝐚 𝐬𝐞𝐧𝐬𝐢𝐭𝐢𝐯𝐞 𝐩𝐞𝐫𝐬𝐨𝐧 𝐚𝐧𝐝 𝐠𝐞𝐭 𝐡𝐮𝐫𝐭 𝐞𝐚𝐬𝐢𝐥𝐲 𝐢𝐰𝐜 ✴︎
+<br>
+𝐢 𝐦𝐢𝐠𝐡𝐭 𝐡𝐚𝐯𝐞 𝐦𝐨𝐨𝐝 𝐬𝐰𝐢𝐧𝐠𝐬 𝐨𝐟𝐭𝐞𝐧 𝐛𝐮𝐭 𝐢 𝐰𝐨𝐮𝐥𝐝𝐧'𝐭 𝐥𝐞𝐭 𝐢𝐭 𝐚𝐟𝐟𝐞𝐜𝐭 𝐚𝐧𝐲𝐨𝐧𝐞 ✴︎
+<br>
+𝐟𝐞𝐞𝐥 𝐟𝐫𝐞𝐞 𝐭𝐨 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭.ᐟ 𝐚𝐥𝐰𝐚𝐲𝐬 𝐨𝐩𝐞𝐧 𝐟𝐨𝐫 𝐢𝐭 , 𝐢 𝐰𝐨𝐮𝐥𝐝𝐧'𝐭 𝐬𝐭𝐚𝐲 𝐢𝐧 𝐭𝐡𝐞 𝐠𝐚𝐦𝐞 𝐢𝐟 𝐢 𝐝𝐢𝐝𝐧'𝐭 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭 ✴︎
+<br>
+𝐢 𝐝𝐨𝐧'𝐭 𝐦𝐢𝐧𝐝 𝐬𝐡𝐢𝐩𝐬 𝐮𝐧𝐥𝐞𝐬𝐬 𝐢𝐭 𝐦𝐚𝐤𝐞𝐬 𝐦𝐞 𝐮𝐧𝐜𝐨𝐦𝐟𝐨𝐫𝐭𝐚𝐛𝐥𝐞 ✴︎
+<br>
+𝐭𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐮𝐧𝐝𝐞𝐫𝐬𝐭𝐚𝐧𝐝𝐢𝐧𝐠! ✴︎
+<br>
+
+<div align="center">
+<br>
+<img width="2906" height="143" alt="WHAT THE FUCK" src="https://github.com/user-attachments/assets/6393444e-98bb-4f61-a656-928cb9e57a66" />
+<br>
+<img width="150" height="150" alt="i dont fucking care" src="https://github.com/user-attachments/assets/b17c56d4-22d3-47c1-b03f-37a94d7c8a6b" /> 
+<img width="230" height="230" alt="what even is this" src="https://github.com/user-attachments/assets/6c3283ba-1a0a-48cb-8be3-a77787318edf" />
+
+<br>
+ 
+<br>
+𝙍𝙚𝙖𝙙 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙛𝙤𝙧 𝙢𝙤𝙧𝙚 𝙞𝙣𝙛𝙤 𝙖𝙣𝙙 𝙨𝙞𝙜𝙣 𝙖𝙩𝙖!!
+<br>
+<br>
+<img width="1400" height="350" alt="banner2" src="https://github.com/user-attachments/assets/ec69f682-3774-4b80-8539-fd6544436bcd" /> 
