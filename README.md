@@ -92,5 +92,8 @@ dni: 𝐩𝐫𝐨𝐬𝐡𝐢𝐩𝐩𝐞𝐫𝐬/𝐝𝐚𝐫𝐤𝐬𝐡𝐢�
 <br>
 𝙍𝙚𝙖𝙙 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙛𝙤𝙧 𝙢𝙤𝙧𝙚 𝙞𝙣𝙛𝙤 𝙖𝙣𝙙 𝙨𝙞𝙜𝙣 𝙖𝙩𝙖!!
 <br>
+  
+  [┆ᴀᴛᴀʙᴏᴏᴋ ಄](https://mero.atabook.org/) [ꜱᴛʀᴀᴡpage┆](https://patatescipsi.straw.page/) 
+
 <br>
 <img width="1400" height="350" alt="banner2" src="https://github.com/user-attachments/assets/ec69f682-3774-4b80-8539-fd6544436bcd" /> 
